@@ -5,11 +5,11 @@ Reviews not only have the power to influence **consumer decisions** but can stre
 <br />
 <br />
 ## TEAM
-<br />
+
 [SHREYA SINGH](https://www.linkedin.com/in/shreya-singh-83b9561a1/)
-<br />
+
 [SANSKAR SONI](https://www.linkedin.com/in/sanskar-soni-6337a1196/)
-<br />
+
 [TANWEERUL HAQUE](https://www.linkedin.com/in/tanweerulhaque/)
-<br />
+
 [KALPESH NAIK](https://www.linkedin.com/in/kalpesh-naik-20ab28190)
